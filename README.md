@@ -1,1 +1,0 @@
-# Anlisas-photocopy2
